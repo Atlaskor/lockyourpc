@@ -1,4 +1,4 @@
-Have wmployees that do not lock their computer?
+Have employees that do not lock their computer?
 Have you been trying to get them to lock their stuff?
 
 Here is your solution!
